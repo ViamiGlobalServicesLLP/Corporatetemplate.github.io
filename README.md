@@ -1,2 +1,0 @@
-# Corporatetemplate.github.io
- 
